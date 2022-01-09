@@ -7,7 +7,7 @@
 
 # Old Activities in Github
  ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰
- https://github.com/Thisan01🐼
+ https://github.com/Thisan01
  ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰
 # Sl-Asiata
 🌟Asiata is helping easy to control whatsapp.
